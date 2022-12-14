@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @stephen-silveira
-- 👀 I’m interested in Programming
+- 👀 I’m interested in everything I feel
 - 🌱 I’m currently learning what I can
 - 📫 How to reach me: Thru Air
 
